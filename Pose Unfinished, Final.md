@@ -1,4 +1,4 @@
-*Pose Unfinished, Final*
+*Unfinished Pose*
 
 Checked-in disrobed again anew.  
 
@@ -20,7 +20,10 @@ words brushed too thin,
 steps a teetering 
 spoken chevron  
   
-but holds still - none - the - less  
+but holds still asks - none - the - less  
+'what do you see?'  
+  
+not enough resistance, definition  
   
 foot falls,  
 flashes fade,  
@@ -36,8 +39,8 @@ that breaking span,
 cleaved city cuts  
 
 what is left   
-our clumsy marks  
+but clumsy marks  
 what is lean  
-my crude words    
+but a crude word    
   
-we say goodbye  
+we say goodbye but drew farewell  
