@@ -1,10 +1,10 @@
 *Unfinished Pose*
 
-_Checked-in disrobed again anew._  
+_Checked-in again, disrobed anew._  
 
-She sways bare,  
+She steps bare,  
 footing finds—flesh taut,  
-curves brim lush wealth,  
+her curves brim lush wealth,  
 steel creaks in hush,  
 words brace too frail,  
 gesture tilts at a start—  
@@ -19,7 +19,7 @@ clumsy honesty shears too bright—
 a hold too tight  
   
 She holds—asks low,  
-glasses slip, nose dents,  
+his glasses slip, nose dents,  
 “what of the shapes of me?”—  
 truth bends, tone drifts,  
 like a blade’s gleam splits the dark,  
@@ -34,7 +34,7 @@ resignation seams so slow,
 a gift gleams misplaced or lost—  
 some scars turn light  
   
-She stays only in her trace,  
+She stays but only in her trace,  
 that nose, that poise—etched fine,  
 marks ache in subtle fade,  
 city’s cuts a sign,  
